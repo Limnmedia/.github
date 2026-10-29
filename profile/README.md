@@ -2,11 +2,15 @@
 
 **Stop-Motion Is Real.**
 
-We help filmmakers and animators bring their ideas to life.
+**Imagination builds the world. The camera brings it to life.**
 
-A movie is a wonderful trick. Show a series of pictures, one after another, and suddenly something moves. Change where the camera looks, and you change what the audience sees. Put two shots together, and you can tell a story without saying a word.
+A puppet takes its first breath. A miniature landscape stretches beyond the horizon. With a change of perspective, the ordinary becomes extraordinary.
 
-That's the magic of filmmaking. More people should have the chance to explore it.
+That's the magic of filmmaking. Pictures become movement, movement becomes meaning, and something that never happened can feel completely real.
+
+You shouldn't need a Hollywood budget to make that magic.
+
+LIMNMEDIA helps filmmakers and animators bring their ideas to life by making the knowledge, methods, and technology of filmmaking more accessible.
 
 ## Our mission
 
